@@ -1,1 +1,1 @@
-# github-jethaharsha.github.io
+# jethaharsha.github.io
